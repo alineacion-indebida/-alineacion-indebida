@@ -28,7 +28,7 @@ Somos la familia de Alineacion Indebida. Tu familia deportiva de Salamanca.
 ## 👀 Contacto
 
 - Email: [alineacionindebida12@gmail.com](mailto:alineacionindebida12@gmail.com)
-- Twitch: [twitch.com/in/alineacionindebida/](https://www.twitch.com/in/alineacionindebida/)
+- Twitch: [twitch.com/in/alineacionindebida/](https://www.twitch.tv/alineacionindebida/)
 - Instagram: [@a_indebida12](https://instagram.com/a_indebida12)
 - X: [@a_indebida12](https://x.com/a_indebida12)
 - Web: [alineacionindebida.com](https://www.alineacionindebida.com)
